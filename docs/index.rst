@@ -1,14 +1,6 @@
 How to Contact Private Internet Access Customer Support for Fast and Secure VPN Assistance
 ===========================================================================================
 
-Description:
-------------
-Complete guide to Private Internet Access customer support including live chat, email help, troubleshooting, billing support, and technical assistance for PIA VPN users.
-
-Keywords:
----------
-Private Internet Access, Private Internet Access customer support, PIA VPN support, Private Internet Access VPN, PIA customer service, Private Internet Access help center, PIA live chat, Private Internet Access subscription support, PIA technical support, Private Internet Access account help
-
 Introduction
 ------------
 
