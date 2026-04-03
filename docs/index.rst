@@ -1,4 +1,4 @@
-How to Contact Private Internet Access Customer Support for Fast and Secure VPN Assistance
+How to Contact Private Internet Access Customer Support?
 ===========================================================================================
 
 Introduction
